@@ -1,1 +1,0 @@
-# PRUEBATECNICA-to-list
